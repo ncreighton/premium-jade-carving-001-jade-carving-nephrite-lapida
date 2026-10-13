@@ -1,0 +1,2 @@
+# premium-jade-carving-001-jade-carving-nephrite-lapida
+Tired of feeling overwhelmed by expensive equipment and scattered tutorials that never teach you how to actually carve jade or nephrite from scratch?  This studio guide solves the two biggest barriers to entry: high-cost gear and unclear technique. You'll get a focused, budget-friendly roadmap to set up your own lapidary workspace and master the co
